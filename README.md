@@ -4,7 +4,7 @@
 > *"La visión sin ejecución no es más que una alucinación."*
 > vision without execution is just hallucination
 
-Live at: **[xx-codificare-xx.github.io](https://xx-codificare-xx.github.io)**
+Live at: **[AgenticAcans.ai](https://xx-codificare-xx.github.io/AgenticAcans/)**
 
 ---
 
